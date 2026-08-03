@@ -18,7 +18,7 @@ oomfs/friends below. YAAAAY
 
 
 @Gamblersi as the Chance enthusiast              
-@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, ect enthusiast                  
+@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, Boomie, ect enthusiast                  
 @totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀              
 @unpleasant-like as the Unpleasant enthusiast                 
 @xathetic as the Soap enthusiast                          
