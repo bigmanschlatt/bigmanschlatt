@@ -16,9 +16,9 @@ oomfs/friends below. YAAAAY
 
 
 
-@Gamblersi as the Chance enthusiast
-@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, ect enthusiast
-@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀
-@unpleasant-like as the Unpleasant enthusiast
-@xathetic as the Soap enthusiast
+@Gamblersi as the Chance enthusiast              
+@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, ect enthusiast                  
+@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀              
+@unpleasant-like as the Unpleasant enthusiast                 
+@xathetic as the Soap enthusiast                          
 idk who else nominate someone in the strawpage ok bye
