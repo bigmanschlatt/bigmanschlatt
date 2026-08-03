@@ -9,4 +9,16 @@ peiople on dis are below the image ok
  
  
  
-no 1 yet but. honorary host addon @silly-dotcom as the Oppenheimer enthusiast
+honorary host addon @silly-dotcom as the Oppenheimer enthusiast
+
+
+oomfs/friends below. YAAAAY
+
+
+
+@Gamblersi as the Chance enthusiast
+@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, ect enthusiast
+@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀
+@unpleasant-like as the Unpleasant enthusiast
+@xathetic as the Soap enthusiast
+idk who else nominate someone in the strawpage ok bye
